@@ -4,59 +4,69 @@
 
 **Suggested product title / H1:** Ellie's Rainbow Adventure Baby Crib Set
 
-**SEO title:** Ellie's Rainbow Adventure Baby Crib Set | Cotton Baby Bedding
+**SEO title:** Ellie's Rainbow Adventure Baby Crib Set | Homes N Beyond
 
-**Meta description:** Explore Ellie's Rainbow Adventure Baby Crib Set by Homes N Beyond, with a hand-quilted elephant and rainbow design, 200 TC cotton fabric and coordinated crib pieces.
+**Meta description:** Shop Ellie's Rainbow Adventure Baby Crib Set featuring a sleepy elephant, rainbow, stars and clouds, hand-quilted detailing and 200 TC cotton fabric.
 
 ---
 
-## A little rainbow charm for the nursery
+## A storybook touch for your baby's nursery
 
-Make the nursery feel warm and welcoming with the Ellie's Rainbow Adventure Baby Crib Set. The design features a sleepy elephant resting on a rainbow, with stars and clouds adding a gentle, playful finish. Its hand-quilted detailing gives the design texture, while the coordinated pieces help bring a considered look to the cot.
+Add a little storybook charm to your nursery with **Ellie's Rainbow Adventure Baby Crib Set**. A sleepy elephant resting on a rainbow, surrounded by stars and clouds, makes the design feel sweet and playful without overwhelming the room. The hand-quilted detailing gives the quilt a textured finish, while the coordinated crib pieces help create a matching nursery look.
 
-Designed for parents who enjoy storybook-inspired nursery details, this baby crib bedding set combines a cheerful motif with cotton fabric and a coordinated set of crib accessories. It can also make a thoughtful addition to a newborn nursery gift list.
+Made with listed 200 TC, 100% cotton fabric and 150 GSM polyfill filling, this baby crib bedding set brings together its decorative design and clear material specifications. Whether you're preparing a cot before your little one arrives or choosing a newborn gift, this set offers a coordinated nursery theme in one collection.
 
-## What is included in the set?
+## What comes in Ellie's Rainbow Adventure Baby Crib Set?
 
-The product listing specifies the following pieces:
+The product specifications list these coordinated pieces:
 
+- 1 quilt
 - 1 crib fitted sheet
 - 2 bolsters
 - 1 baby pillow
-- 1 quilt
 
-Please check the measurements below against your cot and mattress before ordering.
+Please check the size details below and compare the fitted sheet measurements with your cot mattress before placing your order.
 
-## Fabric and material composition
-
-The listed fabric specification is **200 thread count (TC), 100% cotton**. The stated filling is **150 GSM polyfill**. The product is also described as hand quilted and hand embroidered.
+## Fabric, filling and finish
 
 ### 200 TC, 100% cotton fabric
 
-Thread count indicates the number of threads woven into a square inch of fabric. The product's stated 200 TC cotton construction gives shoppers a clear material specification to compare when choosing baby bedding. The listing identifies the fabric as 100% cotton; no additional fibre blend is stated.
+The fabric is listed as **200 thread count (TC), 100% cotton**. Thread count refers to the number of threads woven into a square inch of fabric. The composition and thread count are useful details to check when comparing cotton baby bedding. This product listing specifies cotton rather than an unspecified fabric blend.
 
-### 150 GSM polyfill
+### 150 GSM polyfill filling
 
-The listed filling composition is 150 GSM polyfill. GSM means grams per square metre and describes the filling's weight per unit of area. Retain this specification as a factual product detail; avoid translating it into unsupported claims about temperature regulation, hypoallergenic performance or suitability for unsupervised infant sleep.
+The listed filling is **150 GSM polyfill**. GSM stands for grams per square metre and describes the weight of the filling per area. This is the product's stated material detail, not a claim about warmth, temperature regulation or sleep safety.
 
-### Hand-quilted and embroidered finish
+### Hand-quilted and hand-embroidered details
 
-The quilt is described as hand quilted, with embroidered decorative detailing. The sleepy elephant, rainbow, stars and clouds create the playful visual theme of this set.
+The design is described as hand quilted and hand embroidered. The elephant, rainbow, stars and clouds are the main decorative elements, giving the quilt its playful nursery look.
 
-## Product size and dimensions
+## Size and dimensions
 
-| Component | Listed dimensions |
+Check your cot mattress size before ordering and compare it with the fitted sheet measurements.
+
+| Piece | Dimensions |
 |---|---|
 | Quilt | 36 inches wide × 50 inches long |
 | Crib fitted sheet | 27.5 inches wide × 54 inches long + 13 inches deep |
 | Bolster | 11 inches long × 15 inches diameter |
 | Baby pillow | 8.5 inches wide × 9 inches long |
 
-Measure your cot mattress before purchase and compare it with the fitted sheet dimensions above. The listing does not provide a separate mattress compatibility chart.
+The fitted sheet is listed with a 13-inch depth. If your mattress is an unusual size or thickness, measure it first rather than relying only on the product name.
 
-## Wash care instructions
+## A coordinated elephant and rainbow nursery theme
 
-To care for the set, follow the product's listed instructions:
+### Sleepy elephant design
+
+The sleepy elephant sitting on a rainbow is the centre of the design, with stars and clouds adding to the storybook feel. The motif makes the set a lovely option for parents who enjoy playful animal-themed nursery decor.
+
+### Matching crib bedding pieces
+
+The listed quilt, fitted sheet, bolsters and baby pillow share the same design theme, helping you style a coordinated cot. Please remember that decorative bedding pieces are not automatically suitable for an infant's sleep space. Follow age-appropriate use and safe-sleep guidance.
+
+## How to wash and care for the set
+
+Follow the product's listed care instructions to look after the cotton fabric and decorative details:
 
 1. Wash before first use.
 2. Machine wash on a gentle cycle, following the vendor's directions.
@@ -64,56 +74,47 @@ To care for the set, follow the product's listed instructions:
 4. Tumble dry on low heat and remove promptly.
 5. Warm iron as needed.
 
-For best care, avoid mixing the set with items that could snag the embroidery or decorative stitching.
-
-## Design details that make it special
-
-### A sleepy elephant and rainbow motif
-
-The sleepy elephant on a rainbow is the central feature, with stars and clouds completing the storybook-inspired design. It brings a cheerful nursery theme without relying on overly bright colours or busy pattern placement.
-
-### Coordinated crib pieces
-
-The fitted sheet, bolsters and baby pillow are designed to coordinate with the quilt's theme. Together, the listed pieces make it easier to style the cot as a matching set. Their presence in the package should not be interpreted as a recommendation to place pillows, bolsters or loose quilts in an infant's sleep space.
+Avoid washing with items that may snag the embroidery or stitching.
 
 ## Frequently asked questions
 
 ### What is included in Ellie's Rainbow Adventure Baby Crib Set?
 
-The listing specifies one quilt, one crib fitted sheet, two bolsters and one baby pillow.
+The product specifications list one quilt, one crib fitted sheet, two bolsters and one baby pillow.
 
-### What fabric is used in this baby crib set?
+### What is the fabric of this baby crib bedding set?
 
-The product listing specifies 200 TC, 100% cotton fabric.
+The listed fabric is 200 TC, 100% cotton.
 
-### What is the filling material?
+### What is the filling used in the quilt?
 
-The stated filling is 150 GSM polyfill.
+The product lists 150 GSM polyfill filling.
 
 ### Is the quilt hand quilted?
 
-Yes. The product listing describes the quilt as hand quilted and hand embroidered.
+Yes. The listing describes the quilt as hand quilted and hand embroidered.
 
-### What size is the fitted sheet?
+### What are the dimensions of the crib fitted sheet?
 
-The listed fitted sheet measures 27.5 inches wide × 54 inches long, with a 13-inch depth.
+The fitted sheet is listed as 27.5 inches wide × 54 inches long, with a 13-inch depth.
 
-### How should I wash the baby crib set?
+### How should I wash this crib set?
 
-The listed care instructions recommend washing before first use, machine washing on a gentle cycle, using non-chlorine bleach only if needed, tumble drying on low heat and warm ironing as needed.
+Wash before first use. The listed care instructions recommend gentle machine washing, non-chlorine bleach only if needed, low-heat tumble drying and warm ironing as needed.
 
-### Is every piece in the set suitable for a newborn to sleep with?
+### Can newborns sleep with all the pieces in this crib set?
 
-The product contents are not the same as safe-sleep recommendations. Keep an infant's sleep surface firm, flat and clear of loose quilts, pillows, bolsters and soft toys. Use each component only in an age-appropriate way and follow your paediatrician's and recognised child-health authorities' guidance.
+The set's included accessories should not be treated as sleep-safety recommendations. Keep an infant's sleep space firm, flat and clear of loose bedding, quilts, pillows, bolsters and soft toys. Follow current safe-sleep guidance and your paediatrician's advice for age-appropriate use.
 
 ---
 
-**Editorial / SEO implementation notes (remove before publishing):**
-- Primary keyword: Ellie's Rainbow Adventure Baby Crib Set.
-- Supporting phrases: baby crib set, cotton baby bedding set, baby crib bedding set, 200 TC cotton baby bedding.
-- Product-specific attributes and dimensions above are transcribed from the live product listing checked on 21 November 2026.
-- The current live description includes a generic claim that the filling is hypoallergenic. This draft omits that claim because the material specification only identifies 150 GSM polyfill; retain “hypoallergenic” only if the supplier can substantiate it.
-- The live listing refers to “two boosters” in the included-items bullet but calls them “bolsters” in the size section. This draft uses “bolsters” for shopper clarity; confirm the intended component name with the product team.
-- The product page's generic feature bullets mention floral embroidery and pastel tones. This draft uses the specific elephant, rainbow, stars and clouds design shown in the product description rather than repeating unrelated generic copy.
-- The live product is currently marked sold out in the page capture. Availability should be checked before publishing any promotional language.
-- Do not claim certifications, organic status, skin-safety testing, hypoallergenic properties, temperature regulation or newborn sleep suitability unless documentation supports those claims.
+## Internal product SEO notes (remove before publishing)
+
+- **Primary keyword:** Ellie's Rainbow Adventure Baby Crib Set.
+- **Supporting phrases:** baby crib set, baby crib bedding set, cotton baby bedding set, 200 TC cotton baby bedding, baby quilt set.
+- The product specifications above were checked against the live product page on 21 November 2026.
+- The live listing's included-items bullet says “2 boosters,” while the size section says “Bolster.” This draft uses “bolsters” but confirm the correct product term before publishing.
+- The live page's feature bullets do not clearly include the quilt, although the size section lists quilt dimensions and the product is described as a crib set. Confirm the included piece list before publication.
+- The live page includes “hypoallergenic filling” in its feature bullets, but this draft omits the claim because the material specification only identifies 150 GSM polyfill. Add it only if supplier documentation supports it.
+- Avoid unsupported claims such as organic, certified, skin-tested, hypoallergenic, temperature regulating, or newborn sleep safe unless substantiated.
+- Live availability showed sold out at the time of review. Confirm stock status before publishing availability-led wording.
